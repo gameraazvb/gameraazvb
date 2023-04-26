@@ -8,4 +8,5 @@
 gameraazvb/gameraazvb is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Dm me in discord 👿 @gameraazvbmario#7321
+Dm me in discord 👿 @loldevs#7321
+Updated 19/3/23
